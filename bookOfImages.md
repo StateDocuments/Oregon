@@ -1,8 +1,5 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/26tunnelE_pid529.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/4th%20at%20Lincoln_pid3185.JPG)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/Basque_pid1597.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/i5Victory_pid574.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/image2.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/Rqwinning_pid597.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/SW%206th%20at%20I-405_pid3698.JPG)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oregon/blob/master/US30%20at%20St%20Johns%20Bridge%20Top_pid3487.JPG)
